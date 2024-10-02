@@ -1,1 +1,1 @@
-In this repostary , I am sharing my own projects
+In this repositary , I am sharing my own projects
